@@ -1,1 +1,1 @@
-Download then click 
+Download then click 'Plant.exe'.
